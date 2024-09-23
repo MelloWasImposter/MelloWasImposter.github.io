@@ -1,1 +1,2 @@
-This is an example paragraph. Anything in the body tag will appear on the page, just like this p tag and its contents.
+Add me on Discord! user: Mello_yt
+Subscribe! https://youtube.com/@MelloWasImposter
